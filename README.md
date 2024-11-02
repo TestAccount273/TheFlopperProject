@@ -1,1 +1,1 @@
-Everything NFC for the Flooper Project
+Everthing For The Flooper Zero
